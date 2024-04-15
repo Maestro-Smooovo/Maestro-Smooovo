@@ -1,1 +1,1 @@
-This respository is for Rutgers Homework
+This is Isaac's Creation Palace. Prepare to be amazed!
